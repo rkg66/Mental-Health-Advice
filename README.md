@@ -8,3 +8,4 @@
 - [Interview with mental health expert- Ego vs Esteem](https://jyotirgamya.org/story/ego-vs-esteem/)
 - [Interview with mental health expert- Decoding Trauma & Discovering Passion](https://jyotirgamya.org/story/decoding-trauma/)
 - [Interview with mental health expert- Play Therapy: A Powerful Tool for Mental Health](https://jyotirgamya.org/story/play-therapy/)
+- [Balancing Growth and Sustainability for Success in Business](https://jyotirgamya.org/opinion/point-one-x-manifesto/)
