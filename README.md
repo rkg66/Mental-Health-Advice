@@ -8,5 +8,6 @@
 - [Interview with mental health expert- Ego vs Esteem](https://jyotirgamya.org/story/ego-vs-esteem/)
 - [Interview with mental health expert- Decoding Trauma & Discovering Passion](https://jyotirgamya.org/story/decoding-trauma/)
 - [Interview with mental health expert- Play Therapy: A Powerful Tool for Mental Health](https://jyotirgamya.org/story/play-therapy/)
+- [Interview with mental health expert- Unveiling the Secrets of Healing: A Conversation with Renowned Therapist Mitch Davidowitz](https://jyotirgamya.org/story/conversation-mitch-davidowitz-healing-secrets/)
 - [Balancing Growth and Sustainability for Success in Business](https://jyotirgamya.org/opinion/point-one-x-manifesto/)
 - [Seventy-One New Year Resolution Ideas](https://jyotirgamya.org/article/new-year-resolution-ideas/)
